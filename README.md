@@ -7,6 +7,10 @@ Link da publicação:
 
 https://zolotareff.github.io/descomplica/
 
+Local para teste no Celuar:
+
+https://www.jotform.com/app/build/241310761967660/#preview
+
 
 Apresentação:
 
